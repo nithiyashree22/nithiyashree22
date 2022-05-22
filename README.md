@@ -1,5 +1,5 @@
 ### 
-- ⚡ Fun fact:  I dont multi task while listening to music.. If you give me 100 twix,I will eat them all X3
+- ⚡ Fun fact:  I dont multi task while listening to music.. 
 <!--
 **nithiyashree22/nithiyashree22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
